@@ -19,4 +19,4 @@ Você começa com vislumbres de uma cela de interrogação dos Díspar? Você pl
 
 Ou seria mais satisfatória uma jornada simples e linear? Precisa de uma equipe para resolver esses negócios. Trechos são fáceis.
 
-E aí o que você faz quando o ator brilhante que interpreta o Wallace Breen... morre?
+E aí o que você faz quando a atriz brilhante que interpreta a Wanda Bree... morre?
